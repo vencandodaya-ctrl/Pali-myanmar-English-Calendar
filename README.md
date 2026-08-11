@@ -1,1 +1,0 @@
-# Pali-myanmar-English-Calendar
